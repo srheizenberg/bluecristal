@@ -1,0 +1,2 @@
+# bluecristal
+estou aprendendo.
